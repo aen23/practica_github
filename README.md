@@ -2,4 +2,11 @@
 Práctica con la mesa
 
 
+
+
+
+Cristian Battaglia
+
+IGNACIO PADOVAN
+
 leonardo
